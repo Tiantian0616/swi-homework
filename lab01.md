@@ -11,4 +11,14 @@ title: chenxt9.21
 ## 一个接一个的惊喜
 周五中午在食堂，凭借自己的欧气，与跑得快，加眼疾手快！！！！领到了中大限量发放的中大校徽蛋黄莲蓉月饼！从此，我对蛋黄莲蓉的认识又上了一个新的台阶！蛋黄莲蓉也太棒了呀！然而快乐还远远没有停止！晚上十点，生活部的大家们到宿舍楼下又带来了月饼！还有写了满满祝福的贺卡！感动到飞起呀55555！生活如此多娇！周六当天，我又收到了神秘快递，竟然是山东的小伙伴们合资给我买的月饼礼盒！！我就知道我的小伙伴们一定不会忘记我的( •̀ ω •́ )y真真是最快乐的中秋了！       
       
-![](https://github.com/Tiantian0616/swi-homework/blob/master/IMG_0842.JPG)      
+![](http://b154.photo.store.qq.com/psb?/V12zI6DC32JUEM/KLMYjbsIQn1UFwQCux6ZtyxabHMw.VC24jNoRO6Invk!/c/dJoAAAAAAAAA&bo=IgKTASICkwERECc!)      
+
+![](http://b209.photo.store.qq.com/psb?/V12zI6DC32JUEM/KSmHqDWBJbMYwBq5VIXiBWGTdevTGOe3EyYv02Kfjig!/c/dNEAAAAAAAAA&bo=QAZWCNALwA8RECs!)
+
+![](http://b209.photo.store.qq.com/psb?/V12zI6DC32JUEM/lr9Szy1APYIQyHmYcSCz*5n2nsJAOd0o28JioV23aOM!/c/dNEAAAAAAAAA&bo=QAZWCNALwA8RIBs!)
+
+![](http://b152.photo.store.qq.com/psb?/V12zI6DC32JUEM/mRxwO5OB7Ry2zofS8DxGLFDgzloheOsnBxOYg6Nn3jE!/c/dJgAAAAAAAAA&bo=QAZWCNALwA8RIBs!)
+
+![](http://b159.photo.store.qq.com/psb?/V12zI6DC32JUEM/lcdNNXbIWSQkPJrqBTE6n33TxrxrYUlmL6r2M8xngpw!/c/dJ8AAAAAAAAA&bo=OASABzgEgAcRIBc!)
+
+![](http://b209.photo.store.qq.com/psb?/V12zI6DC32JUEM/RKQCf8LE.qz7uPaSRy4*fPuvO6Ubp42GTsape94o1cQ!/c/dNEAAAAAAAAA&bo=QAZWCNALwA8RIBs!)
