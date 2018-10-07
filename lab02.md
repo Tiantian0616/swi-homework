@@ -30,5 +30,5 @@ monster的智商主要体现在monster的速度、移动方向，只会无脑缓
 可以通过设置不同类别monster来增加游戏的难度和可玩性，比如，改变monster的外观，改变monster的体积，改变monster的寿命（即在命中几发子弹后消失），又或是改变monster的智商和灵敏程度...都是值得一试的操作，这同时，也是游戏趣味的存在。
 
 
-
+![](https://github.com/Tiantian0616/swi-homework/raw/master/19-46-55-10-7-10202.gif)
 
