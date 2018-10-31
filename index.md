@@ -7,7 +7,7 @@
 3. [03-part1&part2](hw03)
 4. [04-homework](hw04)
 5. [05-homework](hw05)
-
+6. [06-homework](hw06)
 
 ## 实验与实践
 
