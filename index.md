@@ -8,6 +8,8 @@
 4. [04-homework](hw04)
 5. [05-homework](hw05)
 6. [06-homework](hw06)
+7. [07-homework](hw06)
+
 
 ## 实验与实践
 
